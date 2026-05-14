@@ -1,4 +1,4 @@
-#  
+#  fish it Script automatic is the best fish it Script, featuring one-hit kill and invisibility. Safe and powerful for all your needs.
 
 
 
